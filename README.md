@@ -1,0 +1,1 @@
+# minsa110.github.io
